@@ -8,4 +8,4 @@ SOBREMIM
 
 ## ***Gostos:Videomame,animes,desenhar,ver videos no youtube e conversr no discord***
  
-## ***Meu Discord: Toddyn-667#6399***
+## ***Meu Discord: Toddyn-667#9222***
